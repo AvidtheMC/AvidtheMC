@@ -1,4 +1,4 @@
-![ezgif-3326ad80f39afd](https://github.com/user-attachments/assets/171ee257-6365-4291-a415-4c4b372a1435)
+![tenor](https://github.com/user-attachments/assets/300ed6cd-d10c-4f05-801d-1b8f9d81ad40)
 
 🪽     . . .⠀⠀꒰ **ULTIMATE LUCKY STUDENT** ! ꒱
 
@@ -29,3 +29,5 @@
 <img width="99" height="56" alt="399029746-2090d250-87f6-4466-97db-59655221517e" src="https://github.com/user-attachments/assets/e8f3afec-de9c-4623-b33c-0fcd6ae0765a" /> 
 <img width="99" height="57" alt="353267825-ac19d0cd-ccb0-4ded-88a1-11ce733212da" src="https://github.com/user-attachments/assets/fa1aecb1-f61f-4159-ada0-97fe7c6d52c9" />
 <img width="99" height="56" alt="dd8hdf9-93278b38-6d90-47d3-b161-8e2c4df6ac2b" src="https://github.com/user-attachments/assets/5d98385e-dca3-4cec-9ed1-a19b0751f8a0" />
+
+
