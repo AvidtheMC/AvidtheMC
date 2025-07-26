@@ -1,5 +1,7 @@
+ ![](https://komarev.com/ghpvc/?username=DespairInducedHope&color=yellowgreen&style=plastic) 
+ 
    ︵ ⠀![6a02c30c27a1a84facbb56df864a6d27f9b972ba_hq](https://github.com/user-attachments/assets/aa03b13d-350a-4d62-a557-dfc476d82540)
-
+ 
 🪽     . . .⠀⠀꒰ **ULTIMATE LUCKY STUDENT** ! ꒱
 
  _07_ .  He ノ⠀It ノ Ey .⠀꒰ **_NIKOLAI / NAGITO_** ꒱
