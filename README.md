@@ -6,7 +6,7 @@
 
  _07_ .  He ノ⠀It ノ Ey .⠀꒰ **_NIKOLAI / NAGITO_** ꒱
 
-  <img width="99" height="56" alt="tumblr_6ce3db6c0a1fb18ff1bee3cbb5fe7545_e5f5e99f_100" src="https://github.com/user-attachments/assets/7150a8fe-c301-4249-898b-6c79951644d3" />   ノ <img width="99" height="56" alt="tumblr_a77fde19332eddaca27c5919507a7ac8_2742bf47_100" src="https://github.com/user-attachments/assets/ba53a490-13b4-4528-9c77-e5cb0792d3a2" />  ノ  <img width="99" height="56" alt="tumblr_0f73456e073397a10b2706d643c7d2ee_3a6ac426_100" src="https://github.com/user-attachments/assets/98241fe2-8581-4571-a477-9757af5bcb72" />
+<img width="99" height="56" alt="tumblr_6ce3db6c0a1fb18ff1bee3cbb5fe7545_e5f5e99f_100" src="https://github.com/user-attachments/assets/83c7a029-09a3-41c6-b9cf-d7586a2edc29" />   ノ <img width="99" height="56" alt="tumblr_a77fde19332eddaca27c5919507a7ac8_2742bf47_100" src="https://github.com/user-attachments/assets/ba53a490-13b4-4528-9c77-e5cb0792d3a2" />  ノ  <img width="99" height="56" alt="tumblr_0f73456e073397a10b2706d643c7d2ee_3a6ac426_100" src="https://github.com/user-attachments/assets/98241fe2-8581-4571-a477-9757af5bcb72" />
 
 
 
