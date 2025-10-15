@@ -2,15 +2,15 @@
  
    ︵ ⠀![6a02c30c27a1a84facbb56df864a6d27f9b972ba_hq](https://github.com/user-attachments/assets/aa03b13d-350a-4d62-a557-dfc476d82540)
  
-🪽     . . .⠀⠀꒰ **ULTIMATE LUCKY STUDENT** ! ꒱ 
+🪽     . . .⠀⠀꒰ **SOMETHING'S NOT RIGHT** ! ꒱ 
 
- _07_ .  He ノ⠀It ノ Ey .⠀꒰ **_NIKOLAI / NAGITO / STREBER_** ꒱
+ _07_ .  He ノ⠀It ノ Ey .⠀꒰ **_NIKOLAI / AVID / STREBER_** ꒱
 
 <img width="99" height="56" alt="tumblr_6ce3db6c0a1fb18ff1bee3cbb5fe7545_e5f5e99f_100" src="https://github.com/user-attachments/assets/83c7a029-09a3-41c6-b9cf-d7586a2edc29" />   ノ <img width="99" height="56" alt="tumblr_a77fde19332eddaca27c5919507a7ac8_2742bf47_100" src="https://github.com/user-attachments/assets/ba53a490-13b4-4528-9c77-e5cb0792d3a2" />  ノ  <img width="99" height="56" alt="tumblr_0f73456e073397a10b2706d643c7d2ee_3a6ac426_100" src="https://github.com/user-attachments/assets/98241fe2-8581-4571-a477-9757af5bcb72" />
 
 
 ⁺　.⠀ *MULTIFANDOM* !⠀  ⌒₊˚ ❤︎ ⠀                   
-  ︵  *#Danganronpa #4Saken
+  ︵  *#Danganronpa #4saken
   #Pokemon #SpookyMonth #Hollowknight & MORE*
 
 ![dcvk4c7-19e36595-cd63-48c7-894c-160a67e1885c](https://github.com/user-attachments/assets/5a9a8cae-29f0-4a52-ae4e-247ab8bea0f4)
