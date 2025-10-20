@@ -13,8 +13,6 @@
   ︵  *#Danganronpa #4saken
   #Pokemon #SpookyMonth #Hollowknight & MORE*
 
-  <img width="99" height="56" alt="tumblr_6ce3db6c0a1fb18ff1bee3cbb5fe7545_e5f5e99f_100" src="https://github.com/user-attachments/assets/83c7a029-09a3-41c6-b9cf-d7586a2edc29" />
-
 ![363258377-ebe9c290-16e0-4b35-957d-ff4b522b5c22](https://github.com/user-attachments/assets/7f3d1d1a-450d-4cc2-9f35-5f7882743587)
 <img width="99" height="56" alt="dfq36e2-a30d6c54-6d94-4162-9acd-67459791a495" src="https://github.com/user-attachments/assets/ac41f955-28c5-4693-a3b9-95f48730c8fd" /> 
 <img width="99" height="56" alt="353267755-36fcc792-5d46-4bc0-b062-94da19aea8bd" src="https://github.com/user-attachments/assets/38ede552-9d09-48ba-bb0f-4fe054effd31" />
